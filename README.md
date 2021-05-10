@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vkvinay580
-- 👀 I’m interested in Everything
-- 🌱 I’m currently learning and never stopping
+- 👀 I’m interested in Everything Digital
+- 🌱 I’m currently learning and not stopping
 - 💞️ I’m looking to collaborate on any project
 - 📫 How to reach me @vkvinay580 Twitter/Instagram/Facebook
 
